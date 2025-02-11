@@ -2,8 +2,6 @@
 
 In the realm of action-packed cinematic experiences, there is one genre that has consistently captured the hearts of audiences: aviation thrillers. These movies combine high-flying action, gripping storylines, and jaw-dropping stunts to create an unforgettable viewing experience. One such film that stands out in the recent past is the much-anticipated *Sky Force Movie*—a project that promises to be a sky-high adventure filled with intense action and heart-pounding suspense.
 
-![Click Here GIF](https://media.tenor.com/qWWK-O83J5YAAAAi/click-here.gif)
-
 <h3><a href="https://movieslink.short.gy/Sky-force">➤ ►🌍📺📱👉 𝙨𝙠𝙮 𝙛𝙤𝙧𝙘𝙚 𝙈𝙤𝙫𝙞𝙚 𝘿𝙤𝙬𝙣𝙡𝙖𝙤𝙙</a></h3>
 
 <h3><a href="https://movieslink.short.gy/Sky-force">➤ ►🌍📺📱👉 𝙨𝙠𝙮 𝙛𝙤𝙧𝙘𝙚 𝙈𝙤𝙫𝙞𝙚 𝘿𝙤𝙬𝙣𝙡𝙖𝙤𝙙</a></h3>
